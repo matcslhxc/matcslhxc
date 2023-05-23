@@ -1,16 +1,22 @@
-### Hi there 👋
+																				               ',
+																				            .-`-,\__
+																			              ."`   `,
+																			            .'_.  ._  `;.
+																			        __ / `      `  `.\ .--.
+																			       /--,| 0)   0)     )`_.-,)
+										HI THERE 👋			              |    ;.-----.__ _-');   /
+																			       '--./         `.`/  `"`
+																			          :   '`      |.      
+																			          | \     /  //         
+																			           \ '---'  /'        
+																			            `------' \  
+																							_/       `--...
+																							
+**I'M MATHIEU CASTEL _________**
 
-<!--
-**matcslhxc/matcslhxc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+▪ In *DAI training* (computer application developer), 31 years old
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+▪ I like graphic design, video games, meditation and a taste for aesthetics
+
+▪ I would like to travel to Japan
